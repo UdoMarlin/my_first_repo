@@ -1,4 +1,4 @@
-# Friends
+# _**Friends**_
 
 - Becky
 - Kawira
